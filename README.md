@@ -1,2 +1,0 @@
-# DerpDerp
-Derpitty DO!
